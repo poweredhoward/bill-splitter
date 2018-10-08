@@ -1,0 +1,1 @@
+Helps friends split bills at restaurants
